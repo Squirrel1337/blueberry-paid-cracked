@@ -1,9 +1,10 @@
 # blueberry-paid-cracked
 
-lol blueberry paid a rat btw
-also bat.cc sucks on my cock (they log ppl)
 
-LLOOLLLLL
+bat.cc sus af
+
+fuck blueberry.tech and blueberry, absolute skidz, i dont give a shit if its "Under New Management" as Clipz said
+
 
 here is source download, you can inspect it yourself :ROFL:
 
